@@ -1,0 +1,3 @@
+EcoGarden
+Introduction
+Welcome to EcoGarden! EcoGarden is a sustainable gardening platform designed to help you cultivate and maintain your own eco-friendly garden space. Whether you're an experienced gardener or a beginner looking to develop your green thumb, EcoGarden provides the tools, resources, and community support you need to grow healthy, organic produce and create a thriving garden ecosystem. Say goodbye to chemical pesticides and synthetic fertilizers, and hello to sustainable gardening with EcoGarden!
